@@ -1,2 +1,3 @@
 # hiyo
-i dont know
+
+K positins elemtns BTBSWE
